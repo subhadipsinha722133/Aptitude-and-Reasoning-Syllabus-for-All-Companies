@@ -1,0 +1,1 @@
+# Aptitude-and-Reasoning-Syllabus-for-All-Companies
